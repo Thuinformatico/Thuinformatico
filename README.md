@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Thuinformatico
 - 👀 I’m interested in ... trabajar 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...sin trabajo/buscando trabajo
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...657860355
 
